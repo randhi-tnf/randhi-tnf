@@ -1,2 +1,1 @@
-👋 Hi, I’m @randhi-tnf
-  
+👋 Hi, I’m Randhi Putra
